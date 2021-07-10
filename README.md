@@ -1,1 +1,0 @@
-# jokyungmin.github.io
